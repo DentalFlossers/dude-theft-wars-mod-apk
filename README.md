@@ -7,7 +7,7 @@
 Dude Theft Wars MOD APK brings a lively mix of open-world exploration, humorous action, and endless possibilities right to your device. Imagine the fun of a sandbox game where every action can lead to wild reactions, from racing down city streets to evading police in ridiculous chases. This MOD APK version, with its extra features and unlocked bonuses, gives you even more freedom to explore, play, and cause harmless chaos in the cartoon-like city.
 
 
-## 👉Dowload now : [Dude Theft Wars MOD APK](dude theft wars mod apk) 👌🏻
+## 👉Dowload now : [Dude Theft Wars MOD APK](https://modhello.com/dude-theft-wars/) 👌🏻
 
 ### Why Choose Dude Theft Wars MOD APK Over the Original?
 
